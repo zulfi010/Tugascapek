@@ -1,0 +1,2 @@
+# Tugascapek
+gk tau lagi 
